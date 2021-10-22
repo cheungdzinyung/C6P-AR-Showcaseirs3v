@@ -1,1 +1,0 @@
-# C6P-AR-Showcaseirs3v
